@@ -20,7 +20,7 @@ email: jomenpardede@gmail.com<br>
 phone: +6282272055285<br>
 Linkedin: www.linkedin.com/in/jomen-pardede<br>
 
-**3. Mia Maryasha (me) **<br>
+**3. Mia Maryasha (me)**<br>
 email: maryashamia@gmail.com<br>
 phone: +6281285566246<br>
 Linkedin: www.linkedin.com/in/mia-maryasha-738723173/<br>

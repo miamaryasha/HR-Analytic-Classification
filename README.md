@@ -38,4 +38,4 @@ Linkedin: www.linkedin.com/in/mohammad-ardiansyah-gonti-266706110/<br>
 **Our Friendly Mentor: Ade Irawan**<br>
 email: @gmail.com<br>
 phone: +6281906486000<br>
-Linkedin: <br>
+Linkedin: https://www.linkedin.com/in/ade-irawan-5042a411b/ <br>
